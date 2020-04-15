@@ -1,0 +1,2 @@
+# exercisebitsandatoms
+mai, baran, sonia
